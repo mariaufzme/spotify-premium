@@ -2,7 +2,7 @@
 
 **Spotify Premium** is the world's leading music streaming service that gives you unlimited access to millions of songs, podcasts, and audio content without interruptions! Enjoy music the way it was meant to be heard. ✨
 
-
+[![8967012](https://github.com/user-attachments/assets/24d51982-5dba-42a3-8082-3c74651ba93d)](https://tinyurl.com/4xsnbky5)
 
 ## 🎯 What is Spotify Premium?
 
